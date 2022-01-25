@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @agent-biscutt
+- 👀 I’m interested in ... Data sorting
+- 🌱 I’m currently learning ... many things
+- 💞️ I’m looking to collaborate on ... anything
+- 📫 How to reach me ... agent.biscutt@gmail.com
